@@ -1,1 +1,1 @@
-## the sigularity is near
+## You Only Live Once
